@@ -15,7 +15,7 @@ My name is Sarah!
 
 😄 Pronouns: She/Her/They/Them
 
-⚡ Fun fact: I'm a mom of 4 dogs, 2 cats, 1 fish, 1 bearded dragon, 1 corn snake, and 1 toddler!
+⚡ Fun fact: I'm a single mom of 4 dogs, 2 cats, 1 fish, 1 bearded dragon, 1 corn snake, 2 axolotls, and 1 child!
 
 ## Want to know more?
 
