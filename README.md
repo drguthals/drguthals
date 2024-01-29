@@ -2,7 +2,7 @@
 
 My name is Sarah!
 
-▶️ I have a YouTube channel: [Sarah Guthals, PhD](https://www.youtube.com/channel/UCgvODZ135iGUbhqE9bSjVSg) and a [Twitch Channel](https://twitch.tv/drguthals).
+▶️ I have a YouTube channel: [Dr Guthals](https://www.youtube.com/channel/UCgvODZ135iGUbhqE9bSjVSg) and a [Twitch Channel](https://twitch.tv/drguthals).
 
 📚 I have written a number of papers and books around technical and educational topics. Check out all of my [books here](https://www.guthals.com/projects/books).
 
